@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... mmn..nuthin
 - 📫 How to reach me ...send me a letter to my house
 - 😄 Pronouns: ... gravy/punkin/stinker
-- ⚡ Fun fact: ...im just a baby
+- ⚡ Fun fact: ...im just a baby and i love Jesus!
 
 <!---
 babyguac/babyguac is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
